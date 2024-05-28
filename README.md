@@ -14,7 +14,7 @@ Hey! I'm Mustafe, a Web Developer developer proficient in React, JavaScript, HTM
 
  For a quick response, DM me on [LinkedIn](/)
  
-[![Instagram](https://www.instagram.com/http_maaali22?igsh=NmEwMW9xcDVieGls&utm_source=qr) 
+[![Instagram](https://www.instagram.com/http_biko/?hl=en) 
 
 
 
