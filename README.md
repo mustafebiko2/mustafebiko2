@@ -14,7 +14,7 @@ Hey! I'm Mustafe, a Web Developer developer proficient in React, JavaScript, HTM
 
  For a quick response, DM me on [LinkedIn](https://www.linkedin.com/in/mustafe-abdi-72a1bb2bb/?trk=contact-info/)
  
-[![Instagram](https://www.instagram.com/http_biko/?hl=en/) 
+[![Instagram](https://www.instagram.com/http_biko/?hl=en) 
 
 
 
